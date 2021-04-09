@@ -1,0 +1,1 @@
+✨ Hey! So all I have to show is some personal projects and code samples to show what I am capable of.
